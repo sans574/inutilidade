@@ -1,0 +1,2 @@
+# inutilidade
+ascii é inutil
